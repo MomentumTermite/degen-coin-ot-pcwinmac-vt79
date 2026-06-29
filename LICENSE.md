@@ -1,4 +1,4 @@
-# 
+# Nativo degen coin sniper bot scripts para Mac OS | Inteligente degen coin sniper bot scripts para PC Windows. Com análise de mercado e acesso rápido ao mempool — otimizado para máximo desempeño en cada plataforma.
 
 
 
